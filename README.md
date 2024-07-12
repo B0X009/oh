@@ -12,5 +12,5 @@ MY INTERESTS -
 Random Info -
 -My favorite color is purple         
 -I draw / animate occasionally        
--Certified brainrot humor user
+-Certified brainrot humor user          
 -I never text/chat first
