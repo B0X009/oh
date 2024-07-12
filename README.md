@@ -1,6 +1,6 @@
 ABOUT ME :        _I go by Boxxi/Box/Al_
 
-MY INTERESTS -
+MY INTERESTS -                                                 
 -GoodKid                           
 -UWO/CUW
 -Pretty Blood
