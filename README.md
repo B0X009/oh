@@ -1,12 +1,12 @@
 ABOUT ME :        _I go by Boxxi/Box/Al_
 
-MY INTERESTS -                                                 
--GoodKid                           
--UWO/CUW
--Pretty Blood
--MadCombat
--FNF
--FNF/MDP Twiddlefinger mod
+MY INTERESTS -                                                        
+-GoodKid                                
+-UWO/CUW                  
+-Pretty Blood            
+-MadCombat              
+-FNF            
+-FNF/MDP Twiddlefinger mod          
 -Bugbo
 
 Random Info -
