@@ -10,6 +10,7 @@ MY INTERESTS -
 -Bugbo
 
 Random Info -
--My favorite color is purple
--I draw / animate occasionally
+-My favorite color is purple         
+-I draw / animate occasionally        
 -Certified brainrot humor user
+-I never text/chat first
