@@ -14,4 +14,5 @@ Random Info -
 -My favorite color is purple         
 -I draw / animate occasionally        
 -Certified brainrot humor user          
--I never text/chat first
+-I never text/chat first        
+-Usually near the toy stash and rating lines
