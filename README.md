@@ -1,6 +1,6 @@
 ABOUT ME :        _I go by Boxxi/Box/Al_      
      _PfP by me!_             
-     Shout out to broski09 for sticking around (u a real one fr 🙏)
+                     Shout out to broski09 for sticking around (u a real one fr 🙏)
 
 MY INTERESTS -                                                        
 -GoodKid                                
