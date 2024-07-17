@@ -9,7 +9,8 @@ MY INTERESTS -
 -MadCombat              
 -FNF            
 -FNF/MDP Twiddlefinger mod          
--Bugbo
+-Bugbo      
+Ofc js about anyone can interact but PLS DO if u like any of my interests (or atleast friend request me if ur shy)
 
 Random Info -
 -My favorite color is purple         
