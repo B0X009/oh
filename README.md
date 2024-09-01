@@ -16,6 +16,6 @@ MY INTERESTS 🤑🤑🤑👅 -
 Random Info -
 -My favorite color is purple         
 -I draw / animate occasionally        
--Using brainrot humor is my love language  (platonic ofc)         
--I never text/chat first        
+-Using brainrot to communicate is my love language  (platonic ofc)         
+-I never/barely text/chat first (i fail to socialize sometimes 💀)        
 -Usually near the toy stash and rating lines        
