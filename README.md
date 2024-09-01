@@ -5,7 +5,7 @@ ABOUT ME 🤓 :        _I go by Boxxi/Box/Al_
 MY INTERESTS 🤑🤑🤑👅 -                                                        
 -GoodKidBand 🎧🎶                               
 -UWO/CUW 👻✂        
--NEAH
+-NEAH                         
 -Pretty Blood 🩸✨           
 -MadCombat 🔪🩸             
 -FNF 🎶🎤           
