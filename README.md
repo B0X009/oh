@@ -1,16 +1,16 @@
-ABOUT ME 🤓 :        _I go by Boxxi/Box/Al_      
+ABOUT ME  :        _I go by Boxxi/Box/Al_      
                  _
                      Shout out to broski09 for sticking around (u a real one fr 🙏)
 
 MY INTERESTS 🤑🤑🤑👅 -                                                        
--GoodKidBand 🎧🎶                               
--UWO/CUW 👻✂        
+-GoodKidBand 🎧                               
+-UWO/CUW ✂        
 -NEAH                         
--Pretty Blood 🩸✨           
--MadCombat 🔪🩸             
--FNF 🎶🎤           
--FNF/MDP Twiddlefinger mod (& MDP in general) 🐵👅     
--Bugbo 🐜     
+-Pretty Blood            
+-MadCombat              
+-FNF            
+-FNF/MDP Twiddlefinger mod (& MDP in general) 👅     
+-Bugbo      
 
 
 Random Info -
