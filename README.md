@@ -6,9 +6,9 @@ MY INTERESTS 🤑🤑🤑👅 -
 -GoodKidBand 🎧                               
 -UWO/CUW ✂        
 -MadCombat                
--Breaking Bad
--Mouthwashing
--Pretty Blood            
+-Breaking Bad               
+-Mouthwashing            
+-Pretty Blood                        
 -NEAH                         
 -FNF       
 -Max Design Pro              
