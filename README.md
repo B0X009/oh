@@ -5,12 +5,15 @@ ABOUT ME  :        _I go by Boxxi/Box/Al_
 MY INTERESTS 🤑🤑🤑👅 -                                                        
 -GoodKidBand 🎧                               
 -UWO/CUW ✂        
--NEAH                         
+-MadCombat                
+-Breaking Bad
+-Mouthwashing
 -Pretty Blood            
--MadCombat              
--FNF            
--FNF/MDP Twiddlefinger mod (& MDP in general) 👅     
+-NEAH             
+-FNF
+-Max Design Pro
 -Bugbo      
+      
 
 
 Random Info -
