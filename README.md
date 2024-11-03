@@ -9,10 +9,10 @@ MY INTERESTS 🤑🤑🤑👅 -
 -Breaking Bad
 -Mouthwashing
 -Pretty Blood            
--NEAH             
--FNF
--Max Design Pro
--Bugbo      
+-NEAH                         
+-FNF       
+-Max Design Pro              
+-Bugbo              
       
 
 
