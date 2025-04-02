@@ -3,7 +3,7 @@ ABOUT ME  :        _I go by Boxxi/Box/Al_
                      the it the it the it
 
 MY INTERESTS 🤑🤑🤑👅 -                                                        
--GoodKidBand 🎧                               
+-Femtanyl/Her's/GoodKidBand                             
 -UWO/CUW ✂        
 -MadCombat                
 -Breaking Bad               
