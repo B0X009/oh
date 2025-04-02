@@ -1,24 +1,24 @@
 ABOUT ME  :        _I go by Boxxi/Box/Al_      
                  _
-                     Shout out to broski09 for sticking around (u a real one fr )
+                     the it the it the it
 
 MY INTERESTS 🤑🤑🤑👅 -                                                        
 -GoodKidBand 🎧                               
 -UWO/CUW ✂        
 -MadCombat                
 -Breaking Bad               
--Mouthwashing            
+-MouthWashing            
 -Pretty Blood                        
 -NEAH                         
 -FNF       
 -Max Design Pro              
 -Bugbo              
-      
+-Doctor Nowhere                                                             
+-Alan Becker AVA/AVM                                                                 
+-Squid Game                                                                                           
+-Dandy's World                                                                               
+-Forsaken                                                                                
 
+                  
 
-Random Info -
--My favorite color is purple         
--I draw / animate occasionally        
--Using brainrot to communicate is my love language  (platonic ofc)         
--I never/barely text/chat first (i fail to socialize sometimes 💀)        
--Usually near the toy stash and rating lines        
+Usually near the toy stash and/or rating lines        
